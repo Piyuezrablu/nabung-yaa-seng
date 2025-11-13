@@ -1,2 +1,0 @@
-# nabung-yaa-seng
-tabungan
